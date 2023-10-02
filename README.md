@@ -1,0 +1,1 @@
+there is beauty in everything
